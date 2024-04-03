@@ -1,1 +1,1 @@
-Ongoing investigation into macro economic trends related to globalization, supply chains, international conflict. Orange.
+Ongoing investigation into macro economic trends related to globalization, supply chains, international conflict. 
